@@ -11,7 +11,7 @@
 
 <p align="center"> ⟡ im usually dressed as ponies from kingsman, ace attorney, or ram. but i like a lot of medias like sing, hotel transylvania, bojack horseman, etc. i also really like elton john and taron egerton!! and eggsy unwin...thats my husband </p>
 
-<p align="center"> ⟡ basic dni but also proshippers, maga, and tcc. i dont fw any of that AT ALL </p>
+<p align="center"> ⟡ basic dni but also proshippers, maga, and tcc (.which includes having an "interest" in zero day even if you dont like tcc. that shit is the same in my eyes and its weird). i dont fw any of that AT ALL </p>
 
 <p align="center"> ⟡ okay thats all BYEEE...sign my ata and sp as well ',:) </p>
 
