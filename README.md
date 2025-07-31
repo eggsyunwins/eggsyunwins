@@ -6,4 +6,6 @@
 
  basic dni criteria, but id also prefer if you didnt int with me if you're in tcc and/or like zero day, sorry!
 
+ i tend to be awkward speaking to new people so i apologize in advance! im really nice tho i promise i dont bite </33
+
  ~i was gonna make this cutesy but Um i gave up sorry??? use code group for 10% off~
