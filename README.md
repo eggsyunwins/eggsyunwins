@@ -2,10 +2,8 @@
  
  heyy im **kat** . she/they minor . virgo . i'd love it if you interacted with me if u recognize/are apart of any fandoms that my ponies r from!!
 
- currently hyperfixated on `the groupchat` but i also like kingsman, elton john, ace attorney, deadpool, lbp, nitw, st, sinjin drowning, lps, shameless, and more ! ! ! 
+ currently hyperfixated on `the groupchat` and `guardians of the galaxy`, but i also like kingsman, elton john, ace attorney, deadpool, nitw, lbp, terraria, batman, etc!!
 
- basic dni + if ur a freak and if you like tcc and/or zeroday. alsooo if ur a fan of tgc but you say weird shit about/sexualize them dont talk to me because i dont support saying weird shit abt real people
-
- i might be awkward if u int but i promise i dont bite!! im just rlly bad at talking to people </3
+ basic dni criteria, but id also prefer if you didnt int with me if you're in tcc and/or like zero day, sorry!
 
  ~i was gonna make this cutesy but Um i gave up sorry??? use code group for 10% off~
